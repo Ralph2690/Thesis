@@ -15,6 +15,9 @@ Recapitulate important theory paper
 Cool images
 
 ## Biblograhy
-
+[1] bllllllllaaaaaaaaaaaa
+[2] More m´blaaaaaaaaa
 
 ## Appendix
+
+Thanks to everyone
